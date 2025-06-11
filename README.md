@@ -1,12 +1,12 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=green&style=plasic&label=𓆩♡𓆪">
+  <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=99004d&style=plasic&label=𓆩♡𓆪">
 
 <p align="center">
-  why dont you show me a little bit of spine ˚ʚ♡ɞ˚
+  met a girl like you wit)( auburn )(air and tawny eyes ! ˚ʚ♡ɞ˚
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/TP3Jnqnf/tumblr-1461cb03137d77dee9d83029ae0d84d2-17886d49-1280-removebg-preview.png" width="200">
+  <img src="https://pa1.aminoapps.com/6436/245379c514e2dc316ac8ea0dc7942442a728e9e4_hq.gif" width="300">
 </p>
 
 <p align="center">
